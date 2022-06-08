@@ -8,7 +8,7 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with hacks for rare games
 - 💬 Ask me about some random facts about roblox 
 - 📫 How to reach me: NeroBuddy1313@nerobuddy.de
-- 😄 Pronouns: hr/him
+- 😄 Pronouns: he/him
 - ⚡ Fun fact: I like coins from all over the world
 
 ### Some stats about me
